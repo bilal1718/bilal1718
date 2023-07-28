@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently working on Amazon Clone Project<br>I am looking to collaborate in open source projects<br>I am being consistent on the coding  
+I am currently working on Amazon Clone Project<br>I am looking to collaborate in open source projects<br>  
 
 
 ## 🌐 Socials:
